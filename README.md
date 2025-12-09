@@ -1,2 +1,1 @@
-# Lampa-eficienta
-Utilitatea lumini non stop 
+# distrugerea sărăciei este recompensarea maximă admisă a minerilor nostri# 
